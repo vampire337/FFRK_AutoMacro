@@ -1,0 +1,1 @@
+# FFRK_AutoMacro
